@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Perkenalkan nama saya **Abdu F **.<br>
+Perkenalkan nama saya **Abdu F**.<br>
 
 Saya seorang **Owner** [Ferla.id](https://ferla.id/).<br>
 

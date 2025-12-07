@@ -2,7 +2,7 @@
 
 Perkenalkan nama saya **Abdu F **.<br>
 
-Saya seorang **Owner** Domain [Ferla.id](https://ferla.id/).<br>
+Saya seorang **Owner** [Ferla.id](https://ferla.id/).<br>
 
 <!--
 **Elheims/Elheims** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
